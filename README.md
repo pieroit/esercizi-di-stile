@@ -1,12 +1,13 @@
 
 # Cappuccetto Rosso
-## Versione neutra
+## Versione ostia
 
-La mamma chiese a Cappuccetto di portare un cesto alla nonna, prendendo la strada più breve attraverso il bosco.
-Lungo la strada Cappuccetto si fece sviare da un lupo cattivo su un sentiero più lungo.
-Il lupo ebbe il tempo di raggiungere per primo la casa della nonna, e la mangiò dopo essere entrato in casa spacciandosi per Cappuccetto.
+La mamma chiese a Cappuccetto di portare un cesto alla nonna, la quale si trova sul lungo mare di Ostia.
+Lungo la strada Cappuccetto si fece abindolare da un venditore ambulante.
 
-Quando Cappuccetto arrivò dalla nonna trovò invece il lupo, che mangiò anche lei.
-Per fortuna lì vicino passava un cacciatore che insospettito dal forte russare del lupo, decise di aprirgli la pancia liberando Cappuccetto e la nonna.
+Mentre Cappuccetto rosso stava contrattando col venditore la nonna uscì di casa, superò varie case, passò lungo il famigerato pontile di Ostia.
+Prese una delle barche presenti e se ne andò lungo l'orizzante laziale.
 
-E vissero tutti felici e contenti
+Quando Cappuccetto arrivò dalla nonna non trovò nessuno quando, ad un certo punto, comparve di nuovo il venditore ambulante
+
+E vissero tutti felici e con ombrelli.

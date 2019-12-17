@@ -2,11 +2,14 @@
 # Cappuccetto Rosso
 ## Versione EcoFriendly
 
- chiese a Cappuccetto di portare un cesto alla nonna, prendendo la strada più breve attraverso il bosco.
-Lungo la strada Cappuccetto si fece sviare da un lupo cattivo su un sentiero più lungo.
-Il lupo ebbe il tempo di raggiungere per primo la casa della nonna, e la mangiò dopo essere entrato in casa spacciandosi per Cappuccetto.
+Mamma Greta Thumberg chiese alla figlia Cappuccetto di portare un cesto alla nonna, prendendo la strada più breve attraverso il bosco.
 
-Quando Cappuccetto arrivò dalla nonna trovò invece il lupo, che mangiò anche lei.
-Per fortuna lì vicino passava un cacciatore che insospettito dal forte russare del lupo, decise di aprirgli la pancia liberando Cappuccetto e la nonna.
+Lungo la strada Cappuccetto incontrò un Trump cattivo che le cominciò a parlare ininterrottamente portandola su un sentiero più lungo.
+
+Arrivarono alla casa della nonna che in quel momento stava preparando il pranzo.
+
+Appena Cappuccetto andò in bagno per lavarsi le mani prima di mangiare Trump cattivo provò ad uccidere la nonna ma in quel preciso istante arrivarono gli altri ospiti attesi dalla nonnina per pranzo: Messicani!.
+
+Alla vista dei Messicani entrare nella casa della cara nonnina Trump scappò via più velocemente che poteva. 
 
 E vissero tutti felici e contenti

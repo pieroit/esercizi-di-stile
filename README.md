@@ -3,10 +3,10 @@
 ## Versione menefrega
 
 La mamma chiese a Cappuccetto di portare un cesto alla nonna.
-Ma a Cappuccetto non gli interessa proprio nulla della nonna. Perciò chiama la sua amica Menefre e si scofanano tutto il cibo possibile e immaginabile nel bel mezzo del bosco.  
-Il lupo, vecchio amico della nonna, è inorridito da questa scena: mangia le ragazzine e porta il cibo in salvo dalla nonna. 
+Ma a Cappuccetto non gli interessa proprio nulla della nonna. Perciò chiama la sua amica Menefre per dividere il cibo ma quest'ultima si scofana tutto il cibo possibile e immaginabile.  
+Il lupo, vecchio amico della nonna, vista la scena rimane basito: mangia le ragazzine e porta il cibo in salvo dalla nonna. 
 La nonna è felicissima e chiama il cacciatore per sposare lei il lupo.
 
 E vissero perciò tutti felici e contenti...
 
-Tutto d'un tratto però la pancia del lupo comincia  a diltarsi e descono in meniera violenta Cappuccetto e Menefre. Cappuccetto prende il fucile del cacciatore e fa piazza pulita.
+Tutto d'un tratto però la pancia del lupo comincia a dilatarsi ed escono in maniera violenta Cappuccetto e Menefre. Cappuccetto prende il fucile del cacciatore e fa piazza pulita, compresa la sua amica Menefre rea di non aver diviso il cibo nella cesta.

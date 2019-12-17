@@ -8,5 +8,7 @@ Il lupo ebbe il tempo di raggiungere per primo la casa della nonna, e la mangiò
 
 Quando Cappuccetto arrivò dalla nonna trovò invece il lupo, che mangiò anche lei.
 
+Il lupo dopo aver mangiato cappuccetto e la nonna tornò nel bosco in attesa di altre prede
+
 
 E vissero non tutti, non felici e scontenti.

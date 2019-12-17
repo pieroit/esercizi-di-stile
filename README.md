@@ -1,6 +1,6 @@
 
 # Cappuccetto Rosso
-## Versione meccanica
+## Versione neutra
 
 La mamma chiese a Cappuccetto di portare un cesto alla nonna, prendendo la strada più breve attraverso il bosco.
 Lungo la strada Cappuccetto si fece sviare da un lupo cattivo su un sentiero più lungo.

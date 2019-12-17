@@ -1,12 +1,10 @@
 
 # Cappuccetto Rosso
-## Versione neutra
+## Versione menefrega
 
-La mamma chiese a Cappuccetto di portare un cesto alla nonna, prendendo la strada più breve attraverso il bosco.
-Lungo la strada Cappuccetto si fece sviare da un lupo cattivo su un sentiero più lungo.
-Il lupo ebbe il tempo di raggiungere per primo la casa della nonna, e la mangiò dopo essere entrato in casa spacciandosi per Cappuccetto.
+La mamma chiese a Cappuccetto di portare un cesto alla nonna.
+Ma a Cappuccetto non gli interessa proprio nulla della nonna. Perciò chiama la sua amica Menefre e si scofanano tutto il cibo possibile e immaginabile nel bel mezzo del bosco.  
+Il lupo, vecchio amico della nonna, è inorridito da questa scena: mangia le ragazzine e porta il cibo in salvo dalla nonna. 
+La nonna è felicissima e chiama il cacciatore per sposare lei il lupo.
 
-Quando Cappuccetto arrivò dalla nonna trovò invece il lupo, che mangiò anche lei.
-Per fortuna lì vicino passava un cacciatore che insospettito dal forte russare del lupo, decise di aprirgli la pancia liberando Cappuccetto e la nonna.
-
-E vissero tutti felici e contenti
+E vissero perciò tutti felici e contenti...

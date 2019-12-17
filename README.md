@@ -8,3 +8,5 @@ Il lupo, vecchio amico della nonna, è inorridito da questa scena: mangia le rag
 La nonna è felicissima e chiama il cacciatore per sposare lei il lupo.
 
 E vissero perciò tutti felici e contenti...
+
+Tutto d'un tratto però la pancia del lupo comincia  a diltarsi e descono in meniera violenta Cappuccetto e Menefre. Cappuccetto prende il fucile del cacciatore e fa piazza pulita.

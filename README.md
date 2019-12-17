@@ -8,5 +8,6 @@ Il lupo ebbe il tempo di raggiungere per primo la casa della nonna, diede subito
 
 Quando Cappuccetto arrivò dalla nonna trovò la nonna con dello stufato caldo pronto sul tavolo per la sua nipotina.
 
+Lo stufato però veramente bollente e Cappuccetto si ustionà fortemente la lingua. La nonna provò a scusarsi, ma Cappuccetto era in preda alla rabbia e Chiamò il lupo al cellullare.
 
 E mangiarono il lupo felici e contenti.

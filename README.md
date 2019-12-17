@@ -9,7 +9,7 @@ Il lupo ebbe il tempo di raggiungere per primo la casa della nonna, e le chiese 
 
 Quando Cappuccetto arrivò dalla nonna trovò anche il lupo, che era molto infuriato con la nonna che non poteva accettare che il lupo non mangiasse la carne. 
 
-Per fortuna Cappuccetto aveva portato un cesto pieno di frutta e verdura che bastava per saziare cinque lupi e la nonna alla fine si convinse a cucinare un pranzo vegano, ma siccome era ancora un pò indispettita ci mise del gutalax. 
+Per fortuna Cappuccetto aveva portato un cesto pieno di frutta e verdura che bastava per saziare cinque lupi e la nonna alla fine si convinse a cucinare un pranzo vegano, ma siccome era ancora un pò indispettita perchè per una nonna non si può essere veganai. ci mise del gutalax. 
 Lì vicino passava un cacciatore che insospettito dal forte odore di verdure, decise di entrare nella casa. 
 Il cacciatore rimase agghiacciato dal vedere i tre seduti a tavola a mangiare insieme e addirittura cibo vegano. 
 Il lupo alla vista delle prede del cacciatore si arrabbia e alla fine convince anche lui ad abbandonare la carne. 

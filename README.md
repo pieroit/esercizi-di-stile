@@ -12,4 +12,4 @@ Appena Cappuccetto andò in bagno per lavarsi le mani prima di mangiare Trump ca
 
 Alla vista dei Messicani entrare nella casa della cara nonnina Trump scappò via più velocemente che poteva. 
 
-E vissero tutti felici e contenti
+

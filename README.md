@@ -9,4 +9,4 @@ Il lupo ebbe il tempo di raggiungere per primo la casa della nonna, diede subito
 Quando Cappuccetto arrivò dalla nonna trovò la nonna con dello stufato caldo pronto sul tavolo per la sua nipotina.
 
 
-E vissero tutti felici e contenti
+E mangiarono il lupo felici e contenti.
